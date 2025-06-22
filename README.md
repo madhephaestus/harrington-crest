@@ -1,2 +1,2 @@
 # harrington-crest
-Harrington family crest
+Harrington family crest and coat of arms
